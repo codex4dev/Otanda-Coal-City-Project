@@ -1,1 +1,0 @@
-# Otanda-Coal-City-Project
